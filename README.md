@@ -1,0 +1,2 @@
+# randh.github.io
+プライバシーポリシー
